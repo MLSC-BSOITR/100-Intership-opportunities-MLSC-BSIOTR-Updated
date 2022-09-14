@@ -11,9 +11,7 @@ https://www.linkedin.com/posts/utsavgarg1994_intern-internshipopportunity-engine
 ### Media Manager, Video Editors
 https://www.linkedin.com/posts/omkarkapade_hiring-hiring-hiringalert-activity-6951565409569431553-zFgp?utm_source=linkedin_share&utm_medium=android_app
 
-## 3. Cuvette 
-### Content Writer 
-https://cuvette.tech/app/public/internship/62c819c35b8410604a0f90c3
+
 
 ## 4.iRageCapital Advisory 
 ### Intern 
